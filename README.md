@@ -1,0 +1,2 @@
+# hatakinari.github.io
+ジーニアス
